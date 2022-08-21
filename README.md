@@ -1,4 +1,4 @@
-Hello Sir or Miss,
+Hi There~
 That my great honner to see you.
 - 👋 Hi, I’m @Brezze-Z , right , My name is Herbert Zhou. When i join work this is become my name.
 - 👀 I’m interested in Java , VBA , greea passion to Coding.
